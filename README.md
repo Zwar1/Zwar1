@@ -1,5 +1,12 @@
 ### Hi there 👋
-
+I’m currently working on sleep
+I’m currently learning life
+I’m looking to collaborate on eat
+I’m looking for help with dating
+Ask me about joke
+How to reach me: gimme some money
+Pronouns: warrrr
+Fun fact: handsome
 <!--
 **Zwar1/Zwar1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
